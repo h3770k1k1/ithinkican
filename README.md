@@ -3,6 +3,7 @@
 
 Strona internetowa kampanii społecznej **„On Da Radę"** — kampanii skierowanej do kobiet, promującej świadomy wybór partnera oraz budowanie zdrowych, odpowiedzialnych relacji.
 
+
 ## O kampanii
 
 Kampania porusza temat **strategicznej nieporadności** — zjawiska, w którym partnerzy unikają odpowiedzialności za dom, rodzinę i dzieci, tłumacząc się brakiem umiejętności lub doświadczenia. Jednocześnie pokazuje, że mężczyźni są w pełni zdolni do troski, zaangażowania i odpowiedzialności — na przykładach ojców i partnerów z całego świata, a także z natury.
